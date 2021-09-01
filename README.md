@@ -20,6 +20,8 @@ Chapter One
 
 **1:<sup>2</sup>** *Do not be deterred as ideas for managing affairs reach climax. Visualize yourself peering down at feet beneath you and take one step forward at a time.*
 
+**1:<sup>3</sup>** *When uncertain, the right path to follow, remember they are all the same, just a little different.*
+
 **1:<sup>6</sup>** *Life is like driving down a foggy road at night. Turning off your headlights because you can’t see with them on, so it couldn’t be worse, right?*
 
 **1:<sup>10</sup>** *In life, seek things that create peace and happiness. Else find fear and despair and reap them for life.*
