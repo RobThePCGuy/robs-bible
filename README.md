@@ -28,6 +28,8 @@ Chapter One
 
 **1:<sup>6</sup>** *Life is like driving down a foggy road at night. Turning off your headlights because you can’t see with them on, so it couldn’t be worse, right?*
 
+**1:<sup>7</sup>** *When telling tales, deliver the truth before thou part, lest it become a lie.*
+
 **1:<sup>10</sup>** *In life, seek things that create peace and happiness. Else find fear and despair and reap them for life.*
 
 **1:<sup>14</sup>** *What do you do when life gives you lemons… make soup.*
