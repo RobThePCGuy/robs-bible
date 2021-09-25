@@ -11,7 +11,7 @@ Preface
 
 ### And so it has been written; contained within thou shall discover answers to questions left unrequited by the almighty. Place your conviction in Rob’s Bible and observe problems subside.
 
-### Follow my locutions they will usher thou who bear it through the dark nights, hold on until the first light of dawn breaks the horizon. Only then will thou discover the verses within. Quote them for the discipline of the masses.
+### Follow my locutions as they will usher those who bear it through the dark nights. Hold on until the first light of dawn breaks the horizon. Only then will the verses within be revealed.
 
 Chapter One
 -----------
