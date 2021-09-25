@@ -16,13 +16,13 @@ Preface
 Chapter One
 -----------
 
-**1:<sup>1</sup>** *If thou feels inundated with life’s ‘gifts’ make time to wrap each to return to sender.*
+**1:<sup>1</sup>** *If thou feels inundated by life’s ‘gifts’, make time to wrap each one and return to sender.*
 
-**1:<sup>2</sup>** *Do not be deterred as ideas for managing affairs reach climax. Visualize yourself peering down at feet beneath you and take one step forward at a time.*
+**1:<sup>2</sup>** *Do not be deterred when managing affairs reach climax. Visualize yourself peering down at feet beneath you and take one step forward at a time.*
 
 **1:<sup>3</sup>** *When uncertain, the right path to follow, remember they are all the same, just a little different.*
 
-**1:<sup>4</sup>** *You can place faith in a chicken, won’t make it dance.*
+**1:<sup>4</sup>** *You may place faith in a chicken, won’t make it dance.*
 
 **1:<sup>5</sup>** *The early worm gets eaten by the bird.*
 
@@ -30,13 +30,13 @@ Chapter One
 
 **1:<sup>7</sup>** *When telling tales, deliver the truth before thou part, lest it become a lie.*
 
-**1:<sup>10</sup>** *In life, seek things that create peace and happiness. Else find fear and despair and reap them for life.*
+**1:<sup>8</sup>** *What do you do when life gives you lemons … make soup.*
 
-**1:<sup>14</sup>** *What do you do when life gives you lemons… make soup.*
+**1:<sup>9</sup>** *Every domino that has toppled over will rise anew.*
 
-**1:<sup>44</sup>** *Ultimately, every domino that has toppled over will rise anew.*
+**1:<sup>10</sup>** *In life, seek things that bring peace and happiness. Else create fear and despair and reap them for life.*
 
 Chapter Two
 -----------
 
-**2:<sup>2</sup>** *Don’t stack all your ducks in one place… they’ll likely topple over.*
+**2:<sup>2</sup>** *Don’t stack all your ducks in one place … they’ll likely topple over.*
