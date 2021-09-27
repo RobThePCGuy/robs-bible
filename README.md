@@ -39,4 +39,6 @@ Chapter One
 Chapter Two
 -----------
 
+**2:<sup>1</sup>** *The only road to travel is the hardest to find.*
+
 **2:<sup>2</sup>** *Don’t stack all your ducks in one place … they’ll likely topple over.*
