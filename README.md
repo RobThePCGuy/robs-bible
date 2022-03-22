@@ -40,4 +40,6 @@
 
 **2|<sup>2</sup>** *Don’t stack all your ducks in one place … they’ll likely topple over.*
 
+**2|<sup>3</sup>** *You will never win if you never lose.*
+
 -----------
