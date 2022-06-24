@@ -43,5 +43,6 @@
 **2|<sup>3</sup>** *You will never win if you never lose.*
 
 **2|<sup>4</sup>** *I can't fix it if it's broken; only delay the inevitable.*
+
 -----------
 ![](https://hit.yhype.me/github/profile?user_id=10876982)
